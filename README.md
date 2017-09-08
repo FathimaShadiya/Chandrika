@@ -1,1 +1,1 @@
-# Chandrika
+# Chandrika Project
